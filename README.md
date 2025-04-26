@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Minecraft!
 - 📫 -
 - 😄 Pronouns: any
-- ⚡ Fun fact: ...
+- I'm 20 btw and aroace so please do not flirt it makes me uncomfortable
 
 <!---
 OminnaArtist/OminnaArtist is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
